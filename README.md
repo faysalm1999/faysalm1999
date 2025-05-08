@@ -60,7 +60,7 @@
 ---
 
 ### 📫 How to Reach Me  
-📧 **Email:** [faysalmahamud0099@gmail.com](mailto:faysalmahamud0099@gmail.com)  
+📧 **Email:** [faysalm1999@gmail.com](mailto:faysalmaham1999@gmail.com)  
 🔗 **LinkedIn:** [linkedin.com/in/faysal-mahamud-8957a7233](https://www.linkedin.com/in/faysal-mahamud-8957a7233/)  
 
 ---
